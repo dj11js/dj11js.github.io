@@ -2,16 +2,21 @@
 
 
 ## Expirience
-**to the edge**
- 2004
-** bali bali**
+**to the edge**\
+2004
+ 
+**bali bali**\
  2003
-** gula ble kranka**
+ 
+**gula ble kranka**\
  2002
-** dub ter tay**
+ 
+**dub ter tay**\
  2001
-**mass the gras**
+ 
+**mass the gras**\
  2000
+ 
 |das
 dot
 bra|fgf dfgdf |
